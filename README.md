@@ -1,0 +1,1 @@
+Nota: Se subio un poco más tarde debido a problemas con el computador(Puse el telefono encima donde va el disco y se apagó), El disco actual que poseo es HDD y Está funcionando muy mal. Ya compré un SSD para no tener constantes problemas con el computador dados además a lo largo del semestre. Siento Mucho el atraso :(
